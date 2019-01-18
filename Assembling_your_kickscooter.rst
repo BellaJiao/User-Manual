@@ -1,4 +1,4 @@
-Assembling Your KickScooter
+Assembling KickScooter
 ================================
 
 1. Unfold the stem and push it until you hear a click. Then unfold the kickstand to support the scooter.
